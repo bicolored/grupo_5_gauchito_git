@@ -17,8 +17,7 @@ Hobbies:
 -Estudiar idiomas, hablo Italiano, Inglés, un poco de ruso y estoy aprendiendo Holandés.
 Actualmente vivo en Países Bajos y me dedico a entrenar gente y enseñar a usar un sistema de speaking voice para realizar order picking, me encargo
 de recibir y poner en stock lo que los pickers preparan diariamente.
--También soy diseñador grafico, hago algunos trabajos cada tanto freelance (no tenog mucho tiempo tampoco con laprogramación, pero he trabajado con clientes
-en Argentina, España, Alemania, Rusia e Italia.)
+-También soy diseñador grafico, hago algunos trabajos cada tanto freelance, he trabajado con clientes en Argentina, España, Alemania, Rusia e Italia.)
 -Hincha de Rosario Central.
 -Me gusta viajar.
 
