@@ -27,8 +27,9 @@ Trabajo como analista de riesgo en el Banco de la Nacion Argentina y en forma in
 Me gustan los deportes, principalmente los practicados al aire libre (Practico futbol, boxeo y surf) y fanático de River Plate.
 Amante de los animales y sobre todo los perros.
 
-
+GERMAN VENTURA: 22 años Soy porteño, pianista clasico y organista de rock progresivo, siempre tuve interes y facilidad en los lenguajes (lenguaje musical incluido), me gusta la logica y comprender el funcionamiento de las cosas en general. Tambien estoy en el ciclo profesional de abogacia en la UBA. Soy ciclista profesional.  
 
 ----------------------------------------------------------
+
 
 
