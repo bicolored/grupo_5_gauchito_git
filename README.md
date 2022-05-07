@@ -21,4 +21,14 @@ de recibir y poner en stock lo que los pickers preparan diariamente.
 -Hincha de Rosario Central.
 -Me gusta viajar.
 
+MARCELO HERNANDEZ: Nacido en Necochea, Provincia de Buenos Aires, 31 años.
+Contador Publico Nacional recibido en la UNICEN. 
+Trabajo como analista de riesgo en el Banco de la Nacion Argentina y en forma independiente en un estudio contable propio.
+Me gustan los deportes, principalmente los practicados al aire libre (Practico futbol, boxeo y surf) y fanático de River Plate.
+Amante de los animales y sobre todo los perros.
+
+
+
 ----------------------------------------------------------
+
+
